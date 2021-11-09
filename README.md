@@ -1,3 +1,1 @@
-# maruschka
-D0D158CC-2FA3-487A-AD3E-3A8B6BEB7B2E.JPG
-Video.mp4
+# maruschkа
